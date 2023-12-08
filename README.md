@@ -1,4 +1,5 @@
- ![Black Elegant Minimalist Profile LinkedIn Banner](https://github.com/minhajulislam101/minhajulislam101/assets/62748402/8897cf3b-de41-4af3-aa9d-fa9a83e45484)
+![Blue Corporate Linkedin Banner](https://github.com/minhajulislam101/minhajulislam101/assets/62748402/54301cc2-f84a-4e2a-a016-ec116d4aac88)
+
 
 <h1 align="center">Hi 👋, I'm Md Minhajul Islam</h1>
 <h3 align="center">A passionate Web developer from Bangladesh</h3>
