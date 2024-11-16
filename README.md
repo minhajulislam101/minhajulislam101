@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **minhajul15-13432@diu.edu.bd**
 
-- 📄 [Know about my experiences](https://drive.google.com/file/d/1QoyqfN_QiYPaLFwj-5aXXul47ouoowLp/view?usp=sharing){:target="_blank"}
+- 📄 [Know about my experiences Click here to see my CV](https://drive.google.com/file/d/1QoyqfN_QiYPaLFwj-5aXXul47ouoowLp/view?usp=sharing)
 
 
 - ⚡ Fun fact **I love Traveling**
